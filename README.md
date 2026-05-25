@@ -1,0 +1,1 @@
+# BarkaAp-privacy-policy
